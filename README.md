@@ -6,5 +6,7 @@ Gerrymandering, the term used to describe the drawing of electoral districts to 
 
 ## Approving Council
 Frederic R. Paik Schoenberg
+
 Vivian Lew
+
 Erin K. Hartman, Committee Chair
